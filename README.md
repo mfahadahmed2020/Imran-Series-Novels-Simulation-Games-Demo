@@ -10,8 +10,8 @@
 4. وے ٹو ایکشن ۔ چہارم
 5. ٹاپ ٹارگٹ ۔ حصہ پنجم آخری حصہ ۔
 
-Tribute to the author Mr. Ibn Safi, the founder of the Imran series and the spy world, who introduced spy novels to the subcontinent and the Indian subcontinent, whose novels have been read in the Indian subcontinent for 70 years.
-Another author who presented this series in a new and modern way, Mr. Sir Mazhar Kaleem MA, his novels have also been read continuously in the Indian subcontinent for 50 years. 
+Tribute to the author Mr. Ibn Safi, the founder of the Imran series and the spy world, who introduced spy novels to the subcontinent and the Indo Pak subcontinent, whose novels have been read in the Indo Pak subcontinent for 70 years.
+Another author who presented this series in a new and modern way, Mr. Sir Mazhar Kaleem MA, his novels have also been read continuously in the Indo pak subcontinent for 50 years. 
 To pay tribute to Mr. Sir Mazhar Kaleem MA, a simulation demo game has been set up on one of his novels.
 Novel Name
 1. Halqa-e-Moat - First
