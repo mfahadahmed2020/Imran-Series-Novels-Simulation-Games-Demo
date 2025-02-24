@@ -21,7 +21,7 @@
  
 8. وے ٹو ایکشن ۔ چہارم
  
-10. ٹاپ ٹارگٹ ۔ حصہ پنجم آخری حصہ ۔
+10. ٹاپ ٹارگٹ ۔ حصہ پنجم آخری حصہ
  
 Tribute to the author Mr. Ibn Safi, the founder of the Imran series and the spy world, who introduced spy novels to the subcontinent and the Indo Pak subcontinent, whose novels have been read in the Indo Pak subcontinent for 70 years.
 
