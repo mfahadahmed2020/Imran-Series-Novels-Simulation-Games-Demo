@@ -11,7 +11,7 @@
 
 1۔ ڈارک کلب ۔ مکمل ( حلقہ موت سیریز حصہ اول )
 
-عمران سیریز ناول ناول مظہر کلیم ایم اے
+عمران سیریز ناول مظہر کلیم ایم اے
 
 2. حلقہ موت ۔ اول
  
@@ -27,15 +27,15 @@ Tribute to the author Mr. Ibn Safi, the founder of the Imran series and the spy 
 
 Another author who presented this series in a new and modern way, Mr. Sir Mazhar Kaleem MA, his novels have also been read continuously in the Indo pak subcontinent for 50 years. 
 
-   Tribute to Mr. Sir Mazhar Kaleem MA, a Simulation Demo Game Has Been Set Up on One of His Novel.
+Tribute to Mr. Sir Mazhar Kaleem MA, A Simulation Demo Game Has Been Set Up On One of    His Novel.
 
-   Novel Name
+Novel Name
 
-   Colnel Faridi Series Novel Writer By Mazher Kaleem MA
+Colnel Faridi Series Novel Writer By Mazher Kaleem MA
 
 1. Dark Club Complete ( Halqa-e-Moat Series First Novel )
 
-   Imran series Novel Writer Mazher Kaleem MA
+Imran series Novel Writer Mazher Kaleem MA
 
 2. Halqa-e-Moat - First
 
